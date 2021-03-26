@@ -1,0 +1,2 @@
+# gantengnyaaku
+masih sayang ak
